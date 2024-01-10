@@ -5,11 +5,11 @@
 ### Infos:
 
 - Bandscheibe nicht dauerhaft einseitig belasten
-    - Beim Arbeiten Stündlich die Lage ändern
+    - Beim Arbeiten stündlich die Lage ändern
 - Bandscheiben werden nicht durchblutet
     - Mit Übungen von allen Seiten "ausquetschen"
 - Muskeln um die Bandscheibe aufbauen
-    - dazu gehören Rückenmuskeln aber auch die Bauchmuskeln
+    - Dazu gehören Rückenmuskeln aber auch die Bauchmuskeln
 
 ### Übungen
 
