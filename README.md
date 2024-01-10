@@ -6,7 +6,7 @@
 
 - Bandscheibe nicht dauerhaft einseitig belasten
     - Beim Arbeiten stündlich die Lage ändern
-        - Beim Sitzen den Rücken mal Hohl, mal rund
+        - Beim Sitzen den Rücken mal hohl, mal rund
         - Wechsel zwischen Stehen und Sitzen
 - Bandscheiben werden nicht durchblutet
     - Mit Übungen von allen Seiten "ausquetschen"
@@ -46,5 +46,5 @@
 #### 5. Hinstellen
 
 - Arme hängen lassen in Richtung Fußspitzen
-- Beim ausatmen tiefer gehen
+- Beim Ausatmen tiefer gehen
 - Schmerz genießen
