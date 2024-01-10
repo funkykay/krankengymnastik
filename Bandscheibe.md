@@ -6,6 +6,8 @@
 
 - Bandscheibe nicht dauerhaft einseitig belasten
     - Beim Arbeiten stündlich die Lage ändern
+        - Beim Sitzen den Rücken mal Hohl, mal rund
+        - Wechsel zwischen Stehen und Sitzen
 - Bandscheiben werden nicht durchblutet
     - Mit Übungen von allen Seiten "ausquetschen"
 - Muskeln um die Bandscheibe aufbauen
