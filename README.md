@@ -15,12 +15,17 @@
 
 ### Übungen
 
-#### 1. Brücke machen (Schultern und Beine auf dem Boden)
+#### 1. Brücke machen (Schultern und Füße auf dem Boden)
 
-- Füße auf wackligem Untergrund
-- Arme an Beinen anlegen (optional mit Arme hoch und runter "hacken")
+- Becken so drehen, dass die wirbelsäule komplett auf dem Boden liegt
+- Zehen in Richting Kopf ziehen
+- Po und Bauch anspannen und vom Boden abheben
+- Arme an Beinen anlegen
 - Hüfte muss gerade bleiben
-- Im Wechsel ein Bein lang machen
+- Optional:
+    - Füße auf wackligem Untergrund
+    - Im Wechsel ein Bein lang machen
+    - Mit Arme hoch und runter "hacken"
 
 #### 2. Vierfüßler Stand
 
@@ -48,3 +53,37 @@
 - Arme hängen lassen in Richtung Fußspitzen
 - Beim Ausatmen tiefer gehen
 - Schmerz genießen
+
+## Termin 4
+
+### Übungen
+
+#### 1. Muskelaufbau oberer Rücken
+
+- Gummiband auf Schulterhöhe an der Wand befestigen
+- Das Bandenden rechts und links von der Befestigung greifen
+- Die Bandenden nach hinten ziehen
+- Schulterblätter möglichst nah zusammen bringen
+- Schultern, Ellenbogen und Hände sind immer auf der selben Höhe
+
+#### 2. Muskelaufbau oberer Rücken
+
+- Gummiband auf Schulterhöhe mit ausgestrecken Armen Halten
+- Arme von Vorne zu den Seiten ziehen
+- Das Gummiband darf dabei die Brust berühren
+
+#### 3. Muskelaufbau unterer Rücken
+
+- Im Stand, Arme vor der Brust verkreuzen
+- Weit nach Vorne beugen
+- Kinn an die Brust legen (Rundrücken machen)
+- Kopf nach oben bringen (wie an die Decke schauen)
+- Öberkörper halb aufrichten
+- wiederholen
+
+#### 4. Planks
+
+- Unterarme flach auf den Boden
+- Zehenspitzen auf den Boden
+- Der Rest des Körpers ist gerade und hart wie ein Brett
+- Halten 12/20/30 Sekunden
